@@ -10,7 +10,7 @@
 <p align="center">𝐜𝐫𝐨𝐬𝐬⠀ ﹒𖹭﹒⠀ 𝓶𝓲𝓬𝓪𝓱
 <p align="center"><img src="https://64.media.tumblr.com/1cfbd1d76943e5016b3a2e349a6d8c63/3bef43161d4c1471-dd/s1280x1920/400d915a35eaf59db48c3f098cab7b8ffd90d86e.gif" width="440">
 
-<p align="center">   ✩　　<a href="https://crossinton.atabook.org">atabook</a>　　　　<a href="https://retrospring.net/crossinton">𝓇𝑒𝓉𝓇𝑜𝓈𝓅𝓇𝒾𝓃𝑔</a>　　　　<a href="https://rentry.co/crossinton">rentry</a>　　　　<a href="https://guns.lol/crossinton">𝑔𝓊𝓃𝓈.𝓁𝑜𝓁</a>　　✩
+<p align="center">   ✩　　<a href="https://crossinton.atabook.org">atabook</a>　　　　<a href="https://rentry.co/crossinton">rentry</a>　　　　<a href="https://guns.lol/crossinton">𝑔𝓊𝓃𝓈.𝓁𝑜𝓁</a>　　✩
 <p align="center"> 𝓪𝓵𝔀𝓪𝔂𝓼 w2i unless stated 𝑜𝓉𝒽𝑒𝓇𝓌𝒾𝓈𝑒
 
 <p align="center"><img src="https://media1.tenor.com/m/71fnxhBoT7cAAAAd/micah-bell.gif" width="185"> <img src="https://media1.tenor.com/m/FqkRO-TokIwAAAAC/micah-bell-red-dead-redemption.gif" width="200">
