@@ -13,7 +13,7 @@
 
 <h4 align="center">
   
-[rentry](https://rentry.co/crossinton)ㅤㅤㅤ ㅤㅤㅤ[atabook](https://crossinton.atabook.org/)ㅤㅤㅤㅤ ㅤㅤㅤ[guns.lol](https://guns.lol/crossinton)ㅤㅤㅤㅤ ㅤㅤㅤstrawp is a wip!
+[rentry](https://rentry.co/crossinton)ㅤㅤㅤ ㅤㅤㅤ[atabook](https://crossinton.atabook.org/)ㅤㅤㅤㅤ ㅤㅤㅤ[guns.lol](https://guns.lol/crossinton)ㅤㅤㅤㅤ ㅤㅤㅤ[strawpage](https://thecowpoke.straw.page)
 
 <img src="https://file.garden/ZyPr2TtO7TTyC9op/thecowpoke%20gh/micah%20bottom" width="500">
 
