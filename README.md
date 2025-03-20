@@ -13,7 +13,7 @@
 
 <h4 align="center">
   
-[rentry](https://rentry.co/crossinton)ㅤㅤㅤ ㅤㅤㅤ[atabook](https://crossinton.atabook.org/)ㅤㅤㅤㅤ ㅤㅤㅤ[guns.lol](https://guns.lol/crossinton)ㅤㅤㅤㅤ ㅤㅤㅤ[strawpage](https://thecowpoke.straw.page)
+[rentry](https://rentry.co/kittybell3)ㅤㅤㅤ ㅤㅤㅤ[atabook](https://crossinton.atabook.org/)ㅤㅤㅤㅤ ㅤㅤㅤ[guns.lol](https://guns.lol/crossinton)ㅤㅤㅤㅤ ㅤㅤㅤ[strawpage](https://thecowpoke.straw.page)
 
 <img src="https://files.catbox.moe/zfhsdj.png" width="500">
 
