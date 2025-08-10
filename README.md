@@ -1,15 +1,12 @@
-<h4 align="center"><img src="https://komarev.com/ghpvc/?username=thecowpoke&color=414852&label=✩" height="20">
+<div align="center">
 
 
-<h4 align="center"><img src="https://files.catbox.moe/98uzwm.png" width="400">
+![](https://komarev.com/ghpvc/?username=thecowpoke&color=87442f&label=🤠&style=plastic)
 
-</h4>
 
-<h4 align="center">
-  
-[rentry](https://rentry.co/kittybell3)ㅤㅤㅤㅤㅤ ㅤ[guns.lol](https://guns.lol/crossinton)ㅤㅤㅤㅤㅤ ㅤ[atabook](https://crossinton.atabook.org)ㅤㅤㅤㅤㅤ ㅤ[strawpage](https://thecowpoke.straw.page)
+<p align="center"> <img width="390" src="https://files.catbox.moe/66k0m5.png"/>
 
-<img src="https://spotify-github-profile.kittinanx.com/api/view?uid=31ewfgkw636gbfassnmqvzyjluvm&cover_image=true&theme=natemoo-re&show_offline=false&background_color=787894&interchange=false&bar_color=b2afd9&bar_color_cover=false" width="300">
 
-</h4> 
-</p>
+
+[RENTRY](https://rentry.co/crossinton)ㅤ⟡
+ㅤ[ATABOOK](https://crossinton.atabook.org/)ㅤ⟡ㅤ[GUNS.LOL](https://guns.lol/crossinton)ㅤ⟡ㅤ[STRAWPAGE](https://thecowpoke.straw.page/)ㅤ
